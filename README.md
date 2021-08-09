@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @6qh
+- 👀 I’m interested in discord
+- 🌱 I’m currently learning html
+- 📫 Help me to reach 1k subscribers on youtube.
